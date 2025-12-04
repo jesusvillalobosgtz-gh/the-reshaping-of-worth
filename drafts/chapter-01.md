@@ -529,7 +529,113 @@ Silence.
 **[Panel: Mikhail reaches out slightly - not quite calling him back, but almost]**
 
 **MIKHAIL**:  
-"Wait—is it really possible? Can it actually change?"
+"Wait—"
+
+He stops. Struggles with something.
+
+**MIKHAIL** (continued):  
+"Even if I wanted to... it's arrogant, isn't it? To think we can reshape the world. To tell the universe how things should be."
+
+**[Panel: The Immortal stops. Turns back. A slight, knowing smile]**
+
+**IMMORTAL**:  
+"You think this is about the universe?"
+
+**MIKHAIL**:  
+"Isn't it? We're specks of dust on a speck of dust on a speck of dust. Who are we to demand anything?"
+
+**[Panel: The Immortal steps closer. His expression shifts - more intense, more focused]**
+
+**IMMORTAL**:  
+"You're right. It would be arrogance to tell the *universe* how to be. The universe doesn't care. Stars explode. Galaxies collide. Species go extinct. That is nature. That is the mechanics of existence."
+
+**[Panel: Close-up of the Immortal's eyes]**
+
+**IMMORTAL** (continued):  
+"But Amira didn't die because of the universe. She died because of the *human world*."
+
+**MIKHAIL**:  
+"What's the difference?"
+
+**[Panel: Wide shot - the camp visible in the background, tents and suffering, the grave between them]**
+
+**IMMORTAL**:  
+"The universe created hunger. Humans created famines. The universe created scarcity. Humans created hoarding. The universe made us mortal. Humans decided some deaths matter less than others."
+
+**[Panel: Mikhail's face - processing, uncertain]**
+
+**IMMORTAL** (continued):  
+"The human world—this system of money and power and borders—it didn't exist ten thousand years ago. It was *invented*. Built. Imposed on top of the natural world. And what is invented can be reinvented."
+
+**MIKHAIL**:  
+"You're saying the system is... artificial?"
+
+**IMMORTAL**:  
+"Every bit of it. Money. Nations. Corporations. Billionaires. These are not laws of physics. They are agreements. Rules we chose. And rules can be rewritten."
+
+**[Panel: The Immortal gestures toward the camp, the graves]**
+
+**IMMORTAL**:  
+"There is enough food on this planet to feed ten billion people. But 828 million starve. Not because the universe is cruel—because the *system* is. The food exists. The medicine exists. The resources exist. They are simply... allocated elsewhere."
+
+**MIKHAIL** (quiet, bitter):  
+"To those who already have everything."
+
+**IMMORTAL**:  
+"Yes. Because that is how the rules were written. By those who benefit from them."
+
+**[Panel: Mikhail's hands clench. He's listening now, really listening]**
+
+**IMMORTAL**:  
+"You know this already. You've seen it. Children mining cobalt for smartphones—paid two dollars a day, lungs filled with toxic dust. Garment workers locked in factories that burn, sewing clothes for pennies while their bosses profit billions. Farmers in debt for seeds they used to save freely, trapped by patents and loans they can never repay."
+
+**[Panel: Mikhail's face - recognition, rage building]**
+
+**IMMORTAL**:  
+"This is not nature, Mikhail. This is *design*. This is slavery with a paycheck. Chains made of debt instead of iron. And when they resist? When they organize, demand better? The system sends soldiers. Or police. Or simply lets them starve."
+
+**MIKHAIL** (voice tight):  
+"Modern slavery."
+
+**IMMORTAL**:  
+"Yes. Slavery that pretends to be freedom. Because they get paid—barely enough to survive, never enough to escape. And if they can't afford food, housing, medicine? Credit. Debt. The trap closes."
+
+**[Panel: Close-up of Mikhail's eyes - wet from rain or tears, furious]**
+
+**MIKHAIL**:  
+"Born in the wrong place. Wrong time. No choice. Just... stuck."
+
+**IMMORTAL**:  
+"Exactly. Your daughter, your son—they had no choice where they were born. Amira had no choice. The boy mining cobalt in the Congo, the girl stitching shoes in Bangladesh—no choice. The system assigns worth based on geography, on birth, on luck. And then calls it merit."
+
+**[Panel: The Immortal's expression softens - compassionate, gentle]**
+
+**IMMORTAL**:  
+"So when you ask if it's arrogant to change this world—I ask you: Is it arrogant to stop a murder? Is it arrogant to free a slave? Is it arrogant to give medicine to a dying child?"
+
+**MIKHAIL** (whisper):  
+"No."
+
+**IMMORTAL**:  
+"This is not about bending the universe to your will. This is about refusing to accept a *human-made* nightmare as if it were inevitable. As if it were natural law."
+
+**[Panel: Rain falling between them. The grave at their feet. The camp behind them.]**
+
+**IMMORTAL**:  
+"The universe doesn't care if you change the human world. But the children who won't starve? They will."
+
+**[Panel: Mikhail stares at him - something breaking open in his chest]**
+
+**MIKHAIL**:  
+"You're saying it's not about power. It's about—"
+
+**IMMORTAL**:  
+"Compassion. The refusal to let suffering continue when it is *preventable*. When the only thing standing between life and death is someone else's greed."
+
+**[Panel: Silence. Rain. Mikhail's face - clarity forming through devastation]**
+
+**MIKHAIL**:  
+"Is it really possible? Can it actually change?"
 
 **[Panel: The Immortal stops. Turns. His eyes meet Mikhail's - ancient, knowing, but also... uncertain]**
 
